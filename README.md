@@ -1,1 +1,1 @@
-# Research-Assignment-on-business-analytic-terminologies
+This was a research assignment-on-business-analytic-terminologies
